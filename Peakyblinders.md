@@ -2,7 +2,7 @@
 # PEAKY BLINDERS
 ![1](https://github.com/user-attachments/assets/1aaefdd4-0c68-4fe1-a653-998f9181cbc4)
 ---
-**synapsis**
+**Synapsis**
 > The story centers on **Thomas "Tommy" Shelby** , leader of the Peaky Blinders gang, as he navigates the criminal underworld while dealing with personal demons from his wartime experiences. The series explores themes of power, family, trauma, and redemption against the backdrop of post-war Britain's social and political turmoil.
 ---
 # CASTS 
